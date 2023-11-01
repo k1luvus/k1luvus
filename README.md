@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @k1luvus
+- 👀 I’m interested in Coding, Cyber Security, IT Engineering, Robotics, and Gamedev :)
+- 🌱 I’m currently learning COdind, Cyber Security, Networking, Enhanced look into IT Fundamentals, Robotics, and Gamedev B)
+- 📫 How to reach me: I don't have any public social media currently 
